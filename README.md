@@ -1,3 +1,1 @@
-Dygo454 is on another plane of existence, he is his own species, he is the pinnacle of chaos.
-He also has described himself with the following phrase:
-"Haha Game development go brrr. Also sometimes Minecraft and other gamer things :]
+I enjoy software development and electrical engineering but the thing I love most is Game Development. I upload my some of my non-game projects here but if you're looking for the games I've made in the past check out my itch.io page at https://dygo454.itch.io!
